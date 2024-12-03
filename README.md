@@ -70,7 +70,7 @@ I am a results-driven professional with a strong background in mechanical engine
 ## 📫 **Connect with Me**  
 - **Email**: [abhijeetpatil.1997@gmail.com](mailto:abhijeetpatil.1997@gmail.com)  
 - **LinkedIn**: [linkedin.com/in/abhijeet-patil-331a85211](https://www.linkedin.com/in/abhijeet-patil-331a85211/)
-- **My_Website**: [linkedin.com/in/abhijeet-patil-331a85211](https://www.abhijeetpatil.me/)
+- **My_Website**: [https://www.abhijeetpatil.me/](https://www.abhijeetpatil.me/)
 
 ---
 
